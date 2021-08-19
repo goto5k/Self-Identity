@@ -44,6 +44,9 @@ Ambassador campaigns:
 - [TheGraph]()
 - [KOII]()
 
+**Other Activities:** <br />
+
+
 More info soon... <br />
 
 My social links:
